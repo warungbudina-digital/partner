@@ -1,0 +1,2 @@
+# partner
+PETUNJUK INSTALASI
